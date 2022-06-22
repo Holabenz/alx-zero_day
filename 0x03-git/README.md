@@ -1,1 +1,1 @@
-My second day
+My second day, I love coding
